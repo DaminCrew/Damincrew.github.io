@@ -21,3 +21,76 @@ People want to be staff but the application bot is not working so want to be sta
 ## VIP
 
 Want to be vip member invite at least 10 friends to the server and you will see a new lobby for only vip members. 
+
+
+
+## Rules
+
+🤝 1. RESPECT EVERYONE
+
+Respect is non-negotiable.
+
+• 🚫 No abusive language or insults
+• 🚫 No hate, racism, or discrimination
+• 🚫 No harassment or targeting
+
+━━━━━━━━━━━━━━━━━━━━
+
+📵 2. NO SPAM
+
+Keep chats clean and readable.
+
+• ❌ No repeated messages
+• ❌ No unnecessary tagging
+• ❌ No chain messages or copy-paste spam
+
+━━━━━━━━━━━━━━━━━━━━
+
+⚠️ 3. SENSITIVE CONTENT
+
+Keep the environment safe for everyone.
+
+• 🚫 No religion or political debates
+• 🚫 No drugs or harmful discussions
+• 🚫 No NSFW / adult content
+• 🚫 No extreme negative topics
+
+━━━━━━━━━━━━━━━━━━━━
+
+📢 4. NO ADVERTISING
+
+Promotion without permission = punishment
+
+• ❌ No server ads
+• ❌ No DM promotions
+• ❌ No self-promo without approval
+
+━━━━━━━━━━━━━━━━━━━━
+
+🛡️ 5. FOLLOW CHAT FILTER
+
+System rules must be respected.
+
+• ❌ Do not bypass filter
+• ⚠️ Report wrong blocks to admins
+
+━━━━━━━━━━━━━━━━━━━━
+
+🎭 6. USER CONTENT
+
+Keep your profile appropriate.
+
+• ✅ Clean usernames, avatars & status
+• ❌ No offensive or rule-breaking content
+
+━━━━━━━━━━━━━━━━━━━━
+
+🚨 Breaking rules may result in mute, kick, or ban
+
+💬 Follow the rules. Respect the vibe. Enjoy the community. 
+
+_____________________________________________________________
+
+## tutorial 
+
+New tutorial soon
