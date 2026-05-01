@@ -96,5 +96,5 @@ Want VIP perks? 👀
 ━━━━━━━━━━━━━━━━━━
 
 🌟━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━🌟
-🔥 STAY ACTIVE • STAY LOYAL • STAY DAMIN 🔥
+🔥 STAY ACTIVE • STAY LOYAL • Stay Happy 🔥
 🌟━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━🌟
