@@ -8,7 +8,7 @@ Hello, welcome to the Damin Crew pro website. If you have any questions or are f
 Need help or somthing? Just create a ticket on ur server and want to be staff or want to promote just ask staff. 
 https://discord.com/channels/1494567137455505560/1495060789445263460
 
-## News
+## 📣 𝐀𝐧𝐧𝐨𝐮𝐜𝐞𝐦𝐞𝐧𝐭 📣
 There is someone that keeps joining and leaving Damin crew and everyone is leaving bcs that and I wanted to ban that person but it can't bcs he keeps leaving so fast but that I looked and the welcome channels and saw his profile and banned him for 3 months
 
 
