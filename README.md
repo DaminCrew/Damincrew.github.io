@@ -24,21 +24,21 @@ Need help? We got you 💯
 ━━━━━━━━━━━━━━━━━━
 
 ## 📣 ANNOUNCEMENT
-⚠️ Someone was joining & leaving repeatedly, causing members to leave
+⚠️ Damin's Account got blocked because i he spammed
 
-👀 We tracked the account via welcome logs
-🔨 Result: Banned for 3 months
+👀 We really miss him and hope he come back
+🔨 Result: Banned until 2028
 
-✅ Server is now stable again
+💯 Server is now chaos 
 
 ━━━━━━━━━━━━━━━━━━
 
 ## 🔥 LIVE FRIDAY UPDATE
 Every Friday = NEW UPDATE 🚀
 
-✨ More Game Bots added
-🌸 Brand New Seasonal Channel
-📂 New Category incoming
+✨ More chats
+🌸 Brand New Seasonal
+📂 New Website incoming
 
 Stay active & don’t miss it!
 
@@ -48,7 +48,7 @@ Stay active & don’t miss it!
 Staff apps bot is currently down ⚠️
 
 📩 Want to be staff?
-→ DM the Owner directly
+→ make so fast a possible  a application whit the bot
 
 🧠 He will ask you questions before selection
 
